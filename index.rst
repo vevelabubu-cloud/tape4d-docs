@@ -41,5 +41,5 @@ Beberapa hal yang layak diperiksa lebih dulu:
 - Metode pembayaran masih aktif
 - ID tujuan sudah benar
 
-Untuk rincian lengkap, lihat `tape4d <https://tape4dgg.online>`_. Pembahasan pola
+Untuk rincian lengkap, lihat tape4d. Pembahasan pola
 permainan dan ritmenya ada di `slot gacor <https://tape4dgg.online>`_.
